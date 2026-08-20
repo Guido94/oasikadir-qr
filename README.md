@@ -1,0 +1,1 @@
+# oasikadir-qr
